@@ -65,4 +65,6 @@ Only paint-related costs are listed. Headset work was done by Tam Bikes in Mill 
 
 For an explanation of the painting process from Rick at D&D, check out [this video](https://youtu.be/fTGtoTlJyh0) from Rivendell.
 
-For more Gunnar Hyper-X content, check out [this article](https://theradavist.com/david-ross-gunnar-hyper-x/) in The Radavist.
+For a real Porsche Pink Pig paint job, check out [this article](https://iamspecialized.medium.com/very-special-things-operation-flying-pig-847e3c20a555) from Specialized.
+
+For more Gunnar Hyper-X content, check out [this article](https://theradavist.com/david-ross-gunnar-hyper-x/) from The Radavist.
